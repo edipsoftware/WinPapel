@@ -10,4 +10,4 @@ WinPapel: Bahis Dünyasında Yenilikçi Bir Deneyim
 
 Bahis dünyası sürekli olarak gelişiyor ve oyuncular için daha fazla seçenek sunuyor. Bu noktada WinPapel, kullanıcı dostu platformu ve zengin oyun seçenekleri ile dikkat çekiyor. İşte WinPapel'un sunduğu avantajlar ve neden bu platformu tercih etmeniz gerektiği hakkında bilmeniz gerekenler.
 
-<a href="https://heylink.me/winpapel">winpapel</a> <a href="https://heylink.me/winpapel">winpapel giriş</a> <a href="https://heylink.me/winpapel">winpapel güncel</a> <a href="https://winpapel.pro/" title="winpapel">winpapel</a> 
+<a href="https://tr.winpapel.pro/">winpapel</a> <a href="https://tr.winpapel.pro/">winpapel giriş</a> <a href="https://tr.winpapel.pro/">winpapel güncel</a> <a href="https://tr.winpapel.pro/" title="winpapel">winpapel</a> 
